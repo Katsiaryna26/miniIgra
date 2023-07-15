@@ -1,1 +1,1 @@
-[# miniIgra](https://katsiaryna26.github.io/miniIgra/)
+[#miniIgra](https://katsiaryna26.github.io/miniIgra/)
